@@ -113,9 +113,9 @@ Modern, animasyonlu boks kulübü web sitesi ve tam özellikli admin paneli.
 
 ## Destek
 
-Sorularınız için: info@yayboxing.com
+Sorularınız için: batuhanyalcin5834@gmail.com
 
 ## Lisans
 
-© 2025 YAY Boxing Club. Tüm hakları saklıdır.
+© 2025 Batuhan Yalçın. Tüm hakları saklıdır.
 
